@@ -1,1 +1,0 @@
-# devkryzalid.github.io
